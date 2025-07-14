@@ -48,7 +48,7 @@
 
 - 🔗 [LinkedIn](www.linkedin.com/in/deepak-kumar-jha-a64855328)  
 - 🌐 [Portfolio/Website](https://your-portfolio-site.com)   
-- ✉️ [Email}(deepak2004jha@gmail.com)
+- ✉️ [Email](deepak2004jha@gmail.com)
 
 ---
 
