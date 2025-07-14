@@ -46,9 +46,9 @@
 
 ## 📫 Connect with Me
 
-- 🔗 [LinkedIn](https://linkedin.com/in/your-linkedin-id)  
-- 🌐 [Portfolio/Website](https://your-portfolio-site.com) *(if any)*  
-- ✉️ deepak@example.com *(update this)*  
+- 🔗 [LinkedIn](www.linkedin.com/in/deepak-kumar-jha-a64855328)  
+- 🌐 [Portfolio/Website](https://your-portfolio-site.com)   
+- ✉️ [Email}(deepak2004jha@gmail.com)
 
 ---
 
